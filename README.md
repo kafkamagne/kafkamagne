@@ -1,4 +1,4 @@
-‎  ‎ " **IF YOU GO, MOMMA WHERE DO WE GO?** "
+![](https://komarev.com/ghpvc/?username=Kafka-magne&color=orange)‎  ‎ " **IF YOU GO, MOMMA WHERE DO WE GO?** "
 ![Image](https://github.com/user-attachments/assets/ddbe5efc-f024-4cdd-8d0e-e41a225a00ba)
 ‎ 
 ‎ 
